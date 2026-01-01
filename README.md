@@ -1,5 +1,5 @@
 <p align="center">
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/da3bfd29-3b64-4bde-a03f-3a5893cc3287" />
+<img width="735" height="350" alt="image" src="https://github.com/user-attachments/assets/cf21bde0-7405-4d65-8866-f36f2cbbd7f2" />
 
 <p align="center">
 call me kien or any nickname you come up with!! 
